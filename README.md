@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xcherpeng
+- 👋 Hi, I’m Cher
 - 👀 I’m interested in creating things that bring value
 - 🌱 I’m currently learning deep learning
 - 💞️ I’m looking to collaborate on Purple Lotus
