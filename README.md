@@ -2,4 +2,4 @@
 - 👀 I’m interested in creating things that I find neat
 - 🌱 I’m deeply learning deep learning
 - 💞️ I’m looking to collaborate on Purple Lotus
-- 📫 I am best reached by pigeon mail or email (xcher@student.ubc.ca)
+- 📫 I am best reached by email (xcher@student.ubc.ca) or pigeon mail
