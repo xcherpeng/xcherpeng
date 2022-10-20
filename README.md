@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Cher
-- 👀 I’m interested in creating things that I find neat
+- 👀 I’m interested in creating things that can help improve peoples' lives and that I find neat
 - 🌱 I’m deeply learning deep learning
-- 💞️ I’m looking to collaborate on Purple Lotus
+- 💞️ I’m looking to collaborate on Purple Lotus or any cool projects that might be of interest
 - 📫 I am best reached by email (xcher@student.ubc.ca) or pigeon mail
