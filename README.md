@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Cher
+- 👋 Hi
 - 👀 I’m interested in creating things that can help improve peoples' lives
 - 🌱 I’m always learning
 - 💞️ I’m looking to collaborate on Purple Lotus or any cool projects that might be of interest
-- 📫 I am best reached by email (xcher@student.ubc.ca) or by pigeon post
+- 📫 I am best reached by email 
