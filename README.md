@@ -1,4 +1,4 @@
-- 👋 Hi
+- 👋 Hi, my name's Cher
 - 👀 I’m interested in creating things that can help improve peoples' lives
 - 🌱 I’m always learning
 - 💞️ I’m looking to collaborate on Purple Lotus or any cool projects that might be of interest
