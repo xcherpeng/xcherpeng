@@ -1,4 +1,4 @@
 - 👋 Hi, my name's Cher
 - 👀 I’m interested in creating things that can help improve peoples' lives
 - 🌱 I’m always learning
-- 📫 I am best reached by email 
+- 📫 find me on X: https://x.com/themoonspeck
